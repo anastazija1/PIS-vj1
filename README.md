@@ -1,5 +1,4 @@
 Hello World
 aaaaa
-na faksu
-usri linije
+na fnvfdjf faksu
 uzasan ti je kod
